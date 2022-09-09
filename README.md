@@ -1,1 +1,1 @@
-# tecologia2k22
+# tecnologia2k22
